@@ -7,7 +7,7 @@
 
 > 정지수
 
-[블로그](https://velog.io/@zizi219/)
+[블로그 주소](https://velog.io/@zizi219/)
 
 <br>
 
